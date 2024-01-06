@@ -1,3 +1,8 @@
+
+#lab2
+https://hizliresim.com/a3lyiiy
+https://hizliresim.com/qlks4pu
+
 #lab3
 https://hizliresim.com/qzb57y7
 
